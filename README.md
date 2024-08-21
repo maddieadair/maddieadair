@@ -6,4 +6,4 @@ in my free time you can find me:
 - building mechanical keyboards
 - dabbling around w graphic design
 - learning new languages
-- or playing with cats 🐱
+- or playing with cats
